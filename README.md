@@ -1,5 +1,5 @@
 <div align="center">
-  <img src="https://i.imgur.com/L2gT9uE.png" alt="Sentido de Vida" width="600"/>
+  <img src=" https://psicologiamonzo.com/wp-content/uploads/2019/11/crisis-existencial-2.jpg " alt="Sentido de Vida" width="600"/>
 </div>
 
 ---
