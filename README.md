@@ -32,11 +32,11 @@ Las emociones me recuerdan que estoy vivo y conectado con lo que me importa. La 
 
 ### 1. **Fortalezas en momentos difíciles**  
 Viví un momento muy difícil cuando un proyecto al que dediqué todo fracasó. Me sentí frustrado y perdido. Lo superé hablando con personas de confianza, aceptando la tristeza, y recordando que el fracaso no define mi valor.  
-**Lección**: Aprendí que los momentos difíciles también enseñan y fortalecen.
+**Lección**: Aprendí que los momentos difíciles también enseñan y fortalecen.(Erick Galindo)
 
 ### 2. **Escuchar con empatía**  
 Escuchar a mi compañero/a me permitió ver que todos atravesamos momentos oscuros. Compartir historias genera conexión y claridad.  
-**Reflexión**: La empatía sana, une y ayuda a descubrir nuevas perspectivas sobre uno mismo y la vida.
+**Reflexión**: La empatía sana, une y ayuda a descubrir nuevas perspectivas sobre uno mismo y la vida.(Erick Galindo)
 
 ---
 
