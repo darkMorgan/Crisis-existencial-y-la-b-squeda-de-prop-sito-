@@ -35,7 +35,7 @@ Viví un momento muy difícil cuando un proyecto al que dediqué todo fracasó. 
 **Lección**: Aprendí que los momentos difíciles también enseñan y fortalecen.(Erick Galindo)
 
 ### 2. **Escuchar con empatía**  
-Escuchar a mi compañero/a me permitió ver que todos atravesamos momentos oscuros. Compartir historias genera conexión y claridad.  
+Escuchar a mi compañero me permitió ver que todos atravesamos momentos oscuros. Compartir historias genera conexión y claridad.  
 **Reflexión**: La empatía sana, une y ayuda a descubrir nuevas perspectivas sobre uno mismo y la vida.(Erick Galindo)
 
 ---
